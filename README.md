@@ -1,0 +1,1 @@
+# shorts-automation-bot
