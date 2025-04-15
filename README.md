@@ -12,7 +12,7 @@ You also can run your faceless short channels with minimal effort
 - Cash-Friendly Niches: Promote gambling/crypto/nutra with 3x higher conversions than Instagram/Facebook.
 - Traffic That Never Dies: Videos earn passive views for years (not 24hr like Stories).
 
-![Test Image 4](https://drive.google.com/uc?export=download&id=1ISrKe7mBrTS62eILdMiGbBLLTMJ8KkFM) 
+![Test Image 4](https://github.com/babi0jon/shorts-automation-bot/blob/main/image%20header%20long.jpeg?raw=true) 
 ---
 ### IMPERIAL AutoUploader functionality:
 
@@ -55,8 +55,10 @@ You also can run your faceless short channels with minimal effort
 ---
 
 ### ⚡️ Ready to Dominate YouTube?  
-- **[Get Full Details](https://youtubeautomation.hashnode.dev/youtube-shorts-bulk-upload-github)**
+ **[Get Full Details](https://youtubeautomation.hashnode.dev/youtube-shorts-bulk-upload-github)**
 
+![Test Image 5](https://github.com/babi0jon/shorts-automation-bot/blob/main/imgonline-com-ua-twotoone-ejS5kuSTkYlVT.jpg?raw=true)
+ **[How i can make money with this tool ?](https://youtubeautomation.hashnode.dev/youtube-shorts-bulk-upload-github)**
 
 *Star ⭐ this repo for updates!*  
 --- 
